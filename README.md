@@ -6,7 +6,7 @@
 ---
 
 ## Présentation  
-Je suis motivée, sérieuse et rigoureuse, avec une bonne capacité d’adaptation. Passionné par les nouvelles technologies, je cherche à mettre mes compétences au service de projets concrets et innovants.
+Je suis un homme motivée, sérieux et rigoureux, avec une bonne capacité d’adaptation. Passionné par les nouvelles technologies, je cherche à mettre mes compétences au service de projets concrets et innovants.
 
 ---
 
